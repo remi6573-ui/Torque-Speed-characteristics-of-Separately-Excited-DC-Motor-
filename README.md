@@ -1,0 +1,1 @@
+# Torque-Speed-characteristics-of-Separately-Excited-DC-Motor-
